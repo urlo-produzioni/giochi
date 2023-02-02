@@ -1,6 +1,6 @@
 # URLO PRODUZIONI
 
-Pubblicherò qui i miei giochi, divertitevi.
+Pubblicheremo qui i nostri giochi, divertitevi.
 
 ------------------------------------------------
 
