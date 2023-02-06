@@ -2,6 +2,10 @@
 
 Pubblicheremo qui i nostri giochi, divertitevi.
 
+donazioni:
+
+https://getalby.com/p/urloproduzioni
+
 ------------------------------------------------
 
 UNA VITA A CREDITO
